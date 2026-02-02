@@ -56,5 +56,5 @@ AI短剧正处于爆发前夜，现在入场成本最低、机会最大。依托
 开启专属AI短剧创业之路~
 
 ![AI短剧系统](images/AI短剧系统-贴牌.png)
-![AI短剧系统](images/AI短剧系统-价格.png)
-![AI短剧系统](images/AI短剧系统-价格2.png)
+![AI短剧系统](images/AI短剧系统-价格.jpg)
+![AI短剧系统](images/AI短剧系统-价格2.jpg)
