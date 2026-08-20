@@ -51,7 +51,8 @@
 
 AI短剧正处于爆发前夜，现在入场成本最低、机会最大。依托云微AI短剧系统贴牌合作，无需技术研发、无需大额投入，快速拥有自主品牌平台，全程掌控收益，轻松抓住流量与盈利双红利！
 
-### 商务微信：7334n<img width="592" height="754" alt="1b9601fb0dfe99efe40e519d95e746c8" src="https://github.com/user-attachments/assets/a450cfbb-5307-437e-ae6f-22e4f209db56" />
+### 商务微信：nn7334n
+<img width="592" height="754" alt="1b9601fb0dfe99efe40e519d95e746c8" src="https://github.com/user-attachments/assets/a450cfbb-5307-437e-ae6f-22e4f209db56" />
 
 
 开启专属AI短剧创业之路~
